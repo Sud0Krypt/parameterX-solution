@@ -2,7 +2,7 @@
 
 **Tele Contact:** [@sudodaemonn](https://t.me/sudodaemonn)
 
-**Tele Channel:** [Join Here](https://t.me/+Tvbz-xGh_5pjYzVh)
+**Tele Channel:** [Join Here](https://t.me/+qP9G-_ii_XA1MGIx)
 
 ---
 
